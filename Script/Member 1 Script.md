@@ -18,12 +18,12 @@ It’s a cloudy day, as you, NYX, walk into the learning point carry your backpa
 
 **Nyx:** *Tap Elly on the soulder* Hi Elly, is there anyone sitting beside you?
 
-**Elly:** *Pause her movie* Eh, no no no. You sit la *Smile*
+**Member 1:** *Pause her movie* Eh, no no no. You sit la *Smile*
 
 ### B1 -> Scene B2:
 **Nyx:** Are you sure?
 
-**Elly:** *Side eye Nyx with a very weird looks*
+**Member 1:** *Side eye Nyx with a very weird looks*
 
 —Pause for merge—
 
@@ -33,11 +33,11 @@ It’s a cloudy day, as you, NYX, walk into the learning point carry your backpa
 
 **Nyx:** *Sigh* Why don’t I have any idea in my mind right now.
 
-**Elly:** *Resume her movie* *Start to giggle as the movie continue*
+**Member 1:** *Resume her movie* *Start to giggle as the movie continue*
 
 //Camera pan toward Elly for awhile
 
-**Elly:** *looks toward the camera* Sorry, but I can’t focus if you keep staring at me. If you want to join me, you could say so.
+**Member 1:** *looks toward the camera* Sorry, but I can’t focus if you keep staring at me. If you want to join me, you could say so.
 
 ### B1 -> Scene B2.5: [No need record]
 **Nyx:** *Smile* Thank you! {Voice over}
@@ -50,11 +50,11 @@ It’s a cloudy day, as you, NYX, walk into the learning point carry your backpa
 
 **Nyx:** *Sigh* Why don’t I have any idea in my mind right now.
 
-**Elly:** *Resume her movie* *Start to giggle as the movie continue*
+**Member 1:** *Resume her movie* *Start to giggle as the movie continue*
 
 //Camera pan toward Elly for awhile
 
-**Elly:** *looks toward the camera* Sorry, but I can’t focus if you keep staring at me. If you want to join me, you could say so.
+**Member 1:** *looks toward the camera* Sorry, but I can’t focus if you keep staring at me. If you want to join me, you could say so.
 
 ### B2, B2.5 -> Scene B3:
 **Nyx:** I wasn’t staring, it just that your volume is so damn loud *Pissed*
@@ -63,13 +63,13 @@ It’s a cloudy day, as you, NYX, walk into the learning point carry your backpa
 
 **Nyx:** *Takes out headphone from his bag*
 
-**Elly:** Lah, kau ada headphone rupenye… *annoyed*. Anyways. *resume her watching*
+**Member 1:** Lah, kau ada headphone rupenye… *annoyed*. Anyways. *resume her watching*
 
 —Pause for merge—
 
 //Camera pan back to Nyx’s laptop screen
 
-**Elly:** *Shout* WEYH NISA! *speechless* wey…, wey wey…, wey wey…, *shocked* *hit the table*
+**Member 1:** *Shout* WEYH NISA! *speechless* wey…, wey wey…, wey wey…, *shocked* *hit the table*
 
 //Camera pan toward Elly
 
@@ -78,7 +78,7 @@ It’s a cloudy day, as you, NYX, walk into the learning point carry your backpa
 
 //Camera pan back to Nyx’s laptop screen
 
-**Elly:** *Shout* WEYH NISA! *speechless* wey…, wey wey…, wey wey…, *shocked* *hit the table*
+**Member 1:** *Shout* WEYH NISA! *speechless* wey…, wey wey…, wey wey…, *shocked* *hit the table*
 
 //Camera pan toward Elly
 
@@ -92,29 +92,29 @@ It’s a cloudy day, as you, NYX, walk into the learning point carry your backpa
 ### B3, B3.5 -> Scene B5:
 **Nyx:** Diam lah!
 
-**Elly:** *Slient*
+**Member 1:** *Slient*
 
 **Nyx:** Sorry, it’s just that you are too disturbing. Uh, may I ask you a question?
 
 —Pause for merge—
 
-**Elly:** Sure why not.
+**Member 1:** Sure why not.
 
 **Nyx:** I’m working on something related to music. I need some reviews from different music genre.
 
-**Elly:** I see… ok.
+**Member 1:** I see… ok.
 
 **Nyx:** What comes to your mind when you think about horror music?
 
-**Elly:** I think they eerie, suspenseful, and unsettling. Especially when it appear after a jumpscare.
+**Member 1:** I think they eerie, suspenseful, and unsettling. Especially when it appear after a jumpscare.
 
 **Nyx:** Alright, alright. How about fantasy music?
 
-**Elly:** Fantasy music gives me a magical feeling, it gave me a feeling of escaping reality.
+**Member 1:** Fantasy music gives me a magical feeling, it gave me a feeling of escaping reality.
 
 **Nyx:** Ah, I see, I see. Thanks for your opinion. I have one last question.
 
-**Elly:** Sorry but I have to go. You can ask me later
+**Member 1:** Sorry but I have to go. You can ask me later
 
 **Nyx:** Alright, see you soon.
 
@@ -129,35 +129,35 @@ It’s a cloudy day, as you, NYX, walk into the learning point carry your backpa
 ### B4 -> Scene B6
 **Nyx:** Uh, may I ask you a question?
 
-**Elly:** Sure why not.
+**Member 1:** Sure why not.
 
 **Nyx:** I’m working on something related to music. I need some reviews from different music genre.
 
-**Elly:** I see… ok.
+**Member 1:** I see… ok.
 
 **Nyx:** What comes to your mind when you think about horror music?
 
-**Elly:** I think they eerie, suspenseful, and unsettling. Especially when it appear after a jumpscare.
+**Member 1:** I think they eerie, suspenseful, and unsettling. Especially when it appear after a jumpscare.
 
 **Nyx:** Alright, alright. How about fantasy music?
 
-**Elly:** Fantasy music gives me a magical feeling, it gave me a feeling of escaping reality.
+**Member 1:** Fantasy music gives me a magical feeling, it gave me a feeling of escaping reality.
 
 **Nyx:** Ah, I see, I see. Thanks for your opinion. I have one last question.
 
-**Elly:** Sure, go on. *smiles
+**Member 1:** Sure, go on. *smiles
 
 **Nyx:** I needed some music as example for my assignment. Hmm... but I don’t really have a good playlist for it?
 
-**Elly:** It’s easy. I have have tons of playlist. Choose one that suit you!
+**Member 1:** It’s easy. I have have tons of playlist. Choose one that suit you!
 
 **Nyx:** Let me have a look…
 
-**Elly:** Here. *Play music*
+**Member 1:** Here. *Play music*
 
 **Nyx:** Ah! I really like this music. Could you share it with me?
 
-**Elly:** Sure… *share music to Nyx* I’ll get going. You, good luck. *leaves*
+**Member 1:** Sure… *share music to Nyx* I’ll get going. You, good luck. *leaves*
 
 —Continue to B7—
 
@@ -198,7 +198,7 @@ It’s a cloudy day, as you, NYX, walk into the learning point carry your backpa
 ### B11, B15 -> Scene B9:
 **Nyx:** Nope. Totally fine *smiles*
 
-**Elly:** Alright, if you said so. *Packs up her stuff and leave the room*
+**Member 1:** Alright, if you said so. *Packs up her stuff and leave the room*
 
 **Nyx:** Maybe I do need help? Nah… I can do this. It’s easy… *unsure*.
 
@@ -251,11 +251,11 @@ The next day, during the online presentation
 
 **Nyx:** *singing*
 
-**Elly:** *Slaps table* Woi! Bising lah! *Looks over to Nyx unfinished work on her laptop* eh dah lama dah ni… kau baru sampai situ je?
+**Member 1:** *Slaps table* Woi! Bising lah! *Looks over to Nyx unfinished work on her laptop* eh dah lama dah ni… kau baru sampai situ je?
 
 **Nyx:** *Sigh* Ya, tak ada idea in my mind pun…
 
-**Elly:** *concerned* Do you need any help? I might be able to give you a hand.
+**Member 1:** *concerned* Do you need any help? I might be able to give you a hand.
 
 ### B11 -> Scene B12:
 **Nyx:** *sigh* Yes… actually. {Voice over}
@@ -264,19 +264,19 @@ The next day, during the online presentation
 
 **Nyx:** I need to make a playlist to make it short for my assignment. Any suggestion on how it should start?
 
-**Elly:** I like to start with the song that currently stuck on my head. For me, it’ll be “Igloo by Kiss of Life”. *Play Igloo*
+**Member 1:** I like to start with the song that currently stuck on my head. For me, it’ll be “Igloo by Kiss of Life”. *Play Igloo*
 
 **Nyx:** I’ll add that and search for similar type of songs later.
 
-**Elly:** Then, I go with upbeat songs like “Keep Up by Odetari” *Play Keep Up* or just beat hits songs like “Eu Sento Gabu! by PXLWYSE” *Play Eu Sento Gabu*
+**Member 1:** Then, I go with upbeat songs like “Keep Up by Odetari” *Play Keep Up* or just beat hits songs like “Eu Sento Gabu! by PXLWYSE” *Play Eu Sento Gabu*
 
 **Nyx:** Mhmm…*vibing* ok move on. *liking*
 
-**Elly:** I’ll add up bands songs in between like “Somebody to you by The Vamps”, “She look so perfect by 5 SOS” and “No control by 1D” for fun. *Play Somebody to you*
+**Member 1:** I’ll add up bands songs in between like “Somebody to you by The Vamps”, “She look so perfect by 5 SOS” and “No control by 1D” for fun. *Play Somebody to you*
 
 **Nyx:** Aww… my childhood, bring me back to 2014. Love this era.
 
-**Elly:** I’ll end it with slow vibe type of songs like “Reminisensi by Insomniacks”. Oh yea… iconic songs must be added like “We’re all in this together from High School Musical”. For me la... it’s up to your music taste. *smiles*
+**Member 1:** I’ll end it with slow vibe type of songs like “Reminisensi by Insomniacks”. Oh yea… iconic songs must be added like “We’re all in this together from High School Musical”. For me la... it’s up to your music taste. *smiles*
 
 **Nyx:** Aight. Thank you! *continues to add songs and discussing*
 
@@ -291,19 +291,19 @@ The next day, during the online presentation
 
 **Nyx:** I need to make a playlist to make it short for my assignment. Any suggestion on how it should start?
 
-**Elly:** I like to start with the song that currently stuck on my head. For me, it’ll be “Igloo by Kiss of Life”. *Play Igloo*
+**Member 1:** I like to start with the song that currently stuck on my head. For me, it’ll be “Igloo by Kiss of Life”. *Play Igloo*
 
 **Nyx:** I’ll add that and search for similar type of songs later.
 
-**Elly:** Then, I go with upbeat songs like “Keep Up by Odetari” *Play Keep Up* or just beat hits songs like “Eu Sento Gabu! by PXLWYSE” *Play Eu Sento Gabu*
+**Member 1:** Then, I go with upbeat songs like “Keep Up by Odetari” *Play Keep Up* or just beat hits songs like “Eu Sento Gabu! by PXLWYSE” *Play Eu Sento Gabu*
 
 **Nyx:** Mhmm…*vibing* ok move on. *liking*
 
-**Elly:** I’ll add up bands songs in between like “Somebody to you by The Vamps”, “She look so perfect by 5 SOS” and “No control by 1D” for fun. *Play Somebody to you*
+**Member 1:** I’ll add up bands songs in between like “Somebody to you by The Vamps”, “She look so perfect by 5 SOS” and “No control by 1D” for fun. *Play Somebody to you*
 
 **Nyx:** Aww… my childhood, bring me back to 2014. Love this era.
 
-**Elly:** I’ll end it with slow vibe type of songs like “Reminisensi by Insomniacks”. Oh yea… iconic songs must be added like “We’re all in this together from High School Musical”. For me la... it’s up to your music taste. *smiles*
+**Member 1:** I’ll end it with slow vibe type of songs like “Reminisensi by Insomniacks”. Oh yea… iconic songs must be added like “We’re all in this together from High School Musical”. For me la... it’s up to your music taste. *smiles*
 
 **Nyx:** Aight. Thank you! *continues to add songs and discussing*
 
@@ -316,19 +316,19 @@ The next day, during the online presentation
 
 **Nyx:** I need to make a playlist to make it short for my assignment. Any suggestion on how it should start?
 
-**Elly:** I like to start with the song that currently stuck on my head. For me, it’ll be “Igloo by Kiss of Life”. *Play Igloo*
+**Member 1:** I like to start with the song that currently stuck on my head. For me, it’ll be “Igloo by Kiss of Life”. *Play Igloo*
 
 **Nyx:** I’ll add that and search for similar type of songs later.
 
-**Elly:** Then, I go with upbeat songs like “Keep Up by Odetari” *Play Keep Up* or just beat hits songs like “Eu Sento Gabu! by PXLWYSE” *Play Eu Sento Gabu*
+**Member 1:** Then, I go with upbeat songs like “Keep Up by Odetari” *Play Keep Up* or just beat hits songs like “Eu Sento Gabu! by PXLWYSE” *Play Eu Sento Gabu*
 
 **Nyx:** Mhmm…*vibing* ok move on. *liking*
 
-**Elly:** I’ll add up bands songs in between like “Somebody to you by The Vamps”, “She look so perfect by 5 SOS” and “No control by 1D” for fun. *Play Somebody to you*
+**Member 1:** I’ll add up bands songs in between like “Somebody to you by The Vamps”, “She look so perfect by 5 SOS” and “No control by 1D” for fun. *Play Somebody to you*
 
 **Nyx:** Aww… my childhood, bring me back to 2014. Love this era.
 
-**Elly:** I’ll end it with slow vibe type of songs like “Reminisensi by Insomniacks”. Oh yea… iconic songs must be added like “We’re all in this together from High School Musical”. For me la... it’s up to your music taste. *smiles*
+**Member 1:** I’ll end it with slow vibe type of songs like “Reminisensi by Insomniacks”. Oh yea… iconic songs must be added like “We’re all in this together from High School Musical”. For me la... it’s up to your music taste. *smiles*
 
 **Nyx:** Aight. Thank you! *continues to add songs and discussing*
 
@@ -341,31 +341,31 @@ The next day, during the online presentation
 
 **Nyx:** *Play APT from Spotify* Can you guess which song is this?
 
-**Elly:** That’s a easy one. It’s APT from Rose and Bruno Mars!
+**Member 1:** That’s a easy one. It’s APT from Rose and Bruno Mars!
 
 **Nyx:** *Play “Kill This Love” from Spotify* Then how about this?
 
-**Elly:** These songs are so popular, how would I not know them! It’s obviously “Kill This Love” by Blackpink! Now do you trust that I’m the right person
+**Member 1:** These songs are so popular, how would I not know them! It’s obviously “Kill This Love” by Blackpink! Now do you trust that I’m the right person
 
 ### B2, B2.5 -> Scene B14:
 **Nyx:** *Smile*
 
 //Camera zoom in towards the movie in the laptop
 
-**Elly:** Sengih, sengih... Dah kenapa?
+**Member 1:** Sengih, sengih... Dah kenapa?
 
 **Nyx:** *Laugh* Hahaha! Eh, cerita apa ini?
 
 //Camera zoom out and pan toward Elly
 
-**Elly:** *Pause the movie* Aik, tadi kau macam stress sangat dengan assignment kau? Kenapa, dah fed up ke?
+**Member 1:** *Pause the movie* Aik, tadi kau macam stress sangat dengan assignment kau? Kenapa, dah fed up ke?
 
 ### B14 -> Scene B15:
 **Nyx:** Tak, saya continue sekarang. *Continue to finish the assignment*
 
 //Camera suddenly become monochrome and pan toward the table
 
-**Elly:** *Tap on Nyx shoulder* Ayyo… do you need help or do you need SERIOUS help?
+**Member 1:** *Tap on Nyx shoulder* Ayyo… do you need help or do you need SERIOUS help?
 
 //Camera slowly return to normal and pan toward Elly
 
@@ -376,17 +376,17 @@ The next day, during the online presentation
 
 //Camera pan downward then pan toward Elly
 
-**Elly:** LOL, I thought so…
+**Member 1:** LOL, I thought so…
 
 **Nyx:** I need wide range of song genre. I know I can just google or chatGPT but that just… not how music works, you know?
 
-**Elly:** Ahh… so you need song recommendations from different genre?
+**Member 1:** Ahh… so you need song recommendations from different genre?
 
 **Nyx:** Oh my god YES.
 
 //Camera panning up and down
 
-**Elly:** Then you’re facing the right person.
+**Member 1:** Then you’re facing the right person.
 
 ### B18 -> Scene B16.5: [No need record]
 
@@ -394,34 +394,34 @@ The next day, during the online presentation
 
 //Camera pan downward then pan toward Elly
 
-**Elly:** LOL, I thought so…
+**Member 1:** LOL, I thought so…
 
 **Nyx:** I need wide range of song genre. I know I can just google or chatGPT but that just… not how music works, you know?
 
-**Elly:** Ahh… so you need song recommendations from different genre?
+**Member 1:** Ahh… so you need song recommendations from different genre?
 
 **Nyx:** Oh my god YES.
 
 //Camera panning up and down
 
-**Elly:** Then you’re facing the right person.
+**Member 1:** Then you’re facing the right person.
 
 ### B16, B16.5 -> Scene B17:
 **Nyx:** No, that won’t do. I still need to test you. *Play Shakira* How about this?
 
-**Elly:** What was that…*laugh*. That sounds nothing like Shakira…
+**Member 1:** What was that…*laugh*. That sounds nothing like Shakira…
 
 **Nyx:** Eh it’s right la… *imitates Shakira* *laugh*
 
-**Elly:** Ok ok… next please.
+**Member 1:** Ok ok… next please.
 
 **Nyx:** Oh… *grabs a cap and starts imitate*
 
-**Elly:** What is this… Kanye? Drake? Travis? What… *confused*
+**Member 1:** What is this… Kanye? Drake? Travis? What… *confused*
 
 **Nyx:** It’s clearly Central Cee bruh *sigh*
 
-**Elly:** Ahh… your pants tho… *laugh*
+**Member 1:** Ahh… your pants tho… *laugh*
 
 //Camera fade to black with text showing “You seems to have a fun time, but don’t you think you forgotten something?”
 
@@ -430,24 +430,24 @@ The next day, during the online presentation
 ### B14 -> Scene B18:
 **Nyx:** Haah… kejap lagi la sambung *smiles*
 
-**Elly:** *Resume the movie* Ni cerita Indo tu… “Ipar Adalah Maut”.
+**Member 1:** *Resume the movie* Ni cerita Indo tu… “Ipar Adalah Maut”.
 
 **Nyx:** Oh… cerita pasal apa?
 
-**Elly:** *roll eyes* Pasal family affairs. Aiya, kau tengok je la…
+**Member 1:** *roll eyes* Pasal family affairs. Aiya, kau tengok je la…
 
 //Camera zoom in towards the movie in the laptop
 
-**Elly:** *Pass over her snack to share with Nyx*
+**Member 1:** *Pass over her snack to share with Nyx*
 
 **Nyx:** *Grab the snack and begin laughing to the movie*
 
 //Camera fade to black and transition to after the movie roll credit, zooming out to the table
 
-**Elly:** *Closes the laptop* That was… lol. Anyways, do you need any help with your assignment since you look stressed just now.
+**Member 1:** *Closes the laptop* That was… lol. Anyways, do you need any help with your assignment since you look stressed just now.
 
 **Nyx:** *Shaken* Hah?
 
-**Elly:** *Speak slowly* You... need... help?
+**Member 1:** *Speak slowly* You... need... help?
 
 <img width="792" height="504" alt="Screenshot 2026-04-22 at 8 08 57 PM" src="https://github.com/user-attachments/assets/27ef4405-8da5-482d-a23c-4aefb9f7ded9" />
